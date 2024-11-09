@@ -6,4 +6,4 @@ i love to play minecraft!
 
 [add]lzp lzp lzp lzp lzp
 
-[add]lzp lzp lzp lzp lzp
+[add]lll zzz ppp
